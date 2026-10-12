@@ -1,0 +1,2 @@
+# premium-sourdough-journal-001-sourdough-bread-baking-journal
+Stop settling for hit-or-miss sourdough. Treat your baking like a championship strategy: this Notion template logs every variable so you can analyze, adjust, and win every time—no more guessing why one loaf soared and the next flopped.  This isn't just a journal; it's your sourdough's personal scientist and historian. It solves the pain of inconsis
